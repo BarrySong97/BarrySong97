@@ -1,4 +1,4 @@
 ### Hi there 👋
 
 
-[blog](https://bs4real.netlify.app/)- share my thoughts
+[blog](http://barrysong4real.cc/)- Read me more~
