@@ -1,4 +1,4 @@
 ### Hi there 👋
 
 
-[blog](http://barrysong4real.cc/)- Read me more~
+[blog](http://4real.ltd/)- Read me more~
